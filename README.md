@@ -1,0 +1,4 @@
+- sou o gabs 
+- gosto de bolo de fuba cfemoso
+- estou aqui para aprender
+- amo cafe
